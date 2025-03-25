@@ -12,5 +12,5 @@ Algunas cosas sobre mi:
 
 📧 Correo: [sasha.oyanadel@ug.uchile.cl]
 
-¡Gracias por visitar mi perfil y conectar! 🚀
+¡Gracias por visitar mi perfil! 🚀
 
